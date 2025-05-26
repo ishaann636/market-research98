@@ -2,7 +2,7 @@
 
 [Mexico data center market ](https://www.nextmsc.com/report/mexico-data-center-market)is experiencing a period of robust expansion, attracting significant investment and establishing itself as a key hub in Latin America. Several compelling factors are converging to drive this impressive growth trajectory. Understanding these drivers is crucial for businesses looking to capitalize on the opportunities within this dynamic market.
 
-According to Next Move Strategy Consulting, the global Mexico Data Center Market size value is predicted to reach USD 8.92 billion by 2030, at a CAGR of 8.1% from 2024 to 2030.
+**According to Next Move Strategy Consulting, the global Mexico Data Center Market size value is predicted to reach USD 8.92 billion by 2030, at a CAGR of 8.1% from 2024 to 2030.**
 
 [Download Free Sample](https://www.nextmsc.com/mexico-data-center-market/request-sample)
 
